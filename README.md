@@ -1,0 +1,3 @@
+Hi! I am H-mdr-m.
+I do not know what i will do on here, but I know great things will happen though.
+She/her btw, farewell traveller of this repository...
