@@ -1,2 +1,2 @@
-Hello, I hope my things find you well.
+Hello, I hope my projects find you well.
 
